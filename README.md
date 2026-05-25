@@ -1,4 +1,4 @@
-# 🌿 Lupanullaa
+# 🌿 Lupanulla
 
 **Jukwaa #1 la Elimu Tanzania** — Notes, Past Papers & Daily Quizzes kwa wanafunzi na walimu wa NECTA.
 
